@@ -1,5 +1,5 @@
 # 💫 About Me:
-<br>🔭 I'm currently working on improving everyday.<br><br>🌱 I'm currently learning more about Backend Development and web3 development.<br><br>🤔 I'm looking for help exploring and discovering new technologies.<br><br>💻 Ask me about any tech-related stuff.<br><br>📫How to contact me: Email - ojoshegun42@gmail.com<br><br>😃 Pronouns: He/His<br><br>🏀 Fun fact: I love sports & Music
+<br>🔭 I'm currently working on myself and improving everyday.<br><br>🌱 I'm an experienced Backend and web3 developer.<br><br>🤔 I'm looking into exploring and discovering new technologies.<br><br>💻 Ask me about any tech-related stuff.<br><br>📫How to contact me: Email - ojoshegun42@gmail.com<br><br>😃 Pronouns: He/His<br><br>🏀 Fun fact: I love sports & Music
 
 
 ## 🌐 Socials:
